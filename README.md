@@ -9,7 +9,7 @@
 ### ☁️ aesthetic duality check:
 
 - 💐 coquette-core girlie who thrives in spring & autumn
-- 🏎️ tomboy with a need for speed (MAX VERSTAPPEN supremacy. also, go McLaren 💅)
+- 🏎️ adhd core with a need for speed (MAX VERSTAPPEN supremacy. also, go McLaren 💅)
 - 📚 can probably be found curled up with a webtoon, oatmilk latte in hand
 
 ---
