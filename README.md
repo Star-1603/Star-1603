@@ -33,10 +33,10 @@
 
 ### 📬 reach out / vibe with me
 
-- 🌐 ![https://celestia-umaiza.vercel.app](url)
-- 📧 ![syedaumaizaunsa@gmail.com](url)  
-- 💼 ![https://www.linkedin.com/in/syeda-umaiza-unsa-29a648287/](url)
+- 🌐 [https://celestia-umaiza.vercel.app](url)
+- 📧 [syedaumaizaunsa@gmail.com](url)  
+- 💼 [https://www.linkedin.com/in/syeda-umaiza-unsa-29a648287/](url)
 
 > “Tech is cool, but have you ever cried over a manhwa panel?” – me, probably
 
-> Also if you guys have any manhwa/manga suggestions (or if you even need any), reach out to me on my instagram: ![https://www.instagram.com/mimiskies_03/](url)
+> Also if you guys have any manhwa/manga suggestions (or if you even need any), reach out to me on my instagram: [https://www.instagram.com/mimiskies_03/](url)
