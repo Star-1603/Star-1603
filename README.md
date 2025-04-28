@@ -1,8 +1,8 @@
-## 🌸 hey hey, i’m [Your Name] 🍂
+## 🌸 Hey hey, I’m Umaiza!🍂
 
-✨ machine learner by day, manhwa reader by night  
-🧠 into ML, NLP, CV & a little bit of DevOps magic  
-🛠️ currently building: LLM pipelines, cozy UI dashboards & chaotic-good agent systems  
+✨ Machine learner by day, manhwa reader by night  
+🧠 Into ML, NLP, CV & a little bit of DevOps magic  
+🛠️ Currently building: LLM pipelines, cozy UI dashboards & chaotic-good agent systems  
 
 ---
 
